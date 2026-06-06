@@ -2,7 +2,7 @@
 
 [![|1900x820](https://www.hostchoice.in/images/special/hostinger-hosting-offers-free.jpg)](https://hostchoice.in/visit/hostinger-special/)
 
-Looking for a Hostinger coupon code for first-time users? Claim an extra 20% discount on Hostinger hosting plans through our <a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">special offer link</a> and enjoy affordable, high-performance web hosting.
+Looking for a Hostinger coupon code for first-time users? Claim an extra 20% discount on Hostinger hosting plans through our <a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">special offer link</a> and enjoy affordable, high-performance web hosting. Start your website today!
 
 <p align="center"><a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">
   <img src="https://www.hostchoice.in/images/special/discount-button.png" 
