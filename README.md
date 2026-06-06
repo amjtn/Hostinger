@@ -9,7 +9,9 @@
 </a>
 </p>
 
-## How to Avail this offer? ✅
+Looking for Hostinger coupon code for first time user with best discount then you are in the right place. With our referral link you can get a special 20% discount on hosting plans.
+
+## How to Avail this Special Offer? ✅
 
 1. Click the "<a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">Claim Special Discount</a>" button
 2. You will be redirected to the Hostinger website
