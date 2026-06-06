@@ -2,14 +2,14 @@
 
 [![|1900x820](https://www.hostchoice.in/images/special/hostinger-hosting-offers-free.jpg)](https://hostchoice.in/visit/hostinger-special/)
 
+Looking for Hostinger coupon code for first time user with best discount then you are in the right place. With our <a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">special discount link</a> you will be getting extra 20% discount on hosting plans.
+
 <p align="center"><a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">
   <img src="https://www.hostchoice.in/images/special/discount-button.png" 
        alt="Special Discount Button" 
        style="border:none; cursor:pointer;">
 </a>
 </p>
-
-Looking for Hostinger coupon code for first time user with best discount then you are in the right place. With our referral link you can get a special 20% discount on hosting plans.
 
 ## How to Avail this Special Offer? ✅
 
