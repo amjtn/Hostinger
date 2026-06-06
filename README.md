@@ -20,3 +20,22 @@ Looking for a Hostinger coupon code for first-time users? Claim an extra 20% dis
 5. Finally create your hostinger account and complete the payment
 
 That’s it! You have successfully claimed the Hostinger special discount.
+
+## Why Choose Hostinger?✅
+
+- Easy & User-Friendly Interface
+- Fast Website Performance
+- Affordable Pricing
+- Strong Security Features
+- Free Weekly/Daily Backups
+- Free Migration Assistance
+- Suitable for Blogs, Business Websites, eCommerce Stores, and Custom Applications
+- 30 days Money-back Guarantee
+- 24/7 Customer Support
+
+<p align="center"><a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">
+  <img src="https://www.hostchoice.in/images/special/discount-button.png" 
+       alt="Special Discount Button" 
+       style="border:none; cursor:pointer;">
+</a>
+</p>
