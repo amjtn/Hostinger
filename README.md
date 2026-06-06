@@ -6,7 +6,7 @@
   <img src="https://www.hostchoice.in/images/special/offer-button.png" 
        alt="Offer Button" 
        style="border:none; cursor:pointer;">
-</a>
+</a> 
 
 
 
