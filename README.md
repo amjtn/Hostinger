@@ -2,11 +2,12 @@
 
 [![|1900x820](https://www.hostchoice.in/images/special/hostinger-hosting-offers-free.jpg)](https://hostchoice.in/visit/hostinger-special/)
 
-<a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">
+<p align="center"><a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">
   <img src="https://www.hostchoice.in/images/special/special-offer-button.png" 
        alt="Special Offer Button" 
        style="border:none; cursor:pointer;">
 </a>
+</p>
 
 
 
