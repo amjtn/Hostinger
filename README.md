@@ -9,4 +9,12 @@
 </a>
 </p>
 
+## How to Avail this offer? ✅
 
+1. Click the "<a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">Claim Special Discount</a>" button
+2. You will be redirected to the Hostinger website
+3. Choose any hosting plan
+4. In the cart, the 20% discount will be automatically applied
+5. Finally create your hostinger account and complete the payment
+
+That’s it! You have successfully claimed the Hostinger special discount.
