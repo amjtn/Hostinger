@@ -13,7 +13,7 @@ Looking for a Hostinger coupon code for first-time users? Claim an extra 20% dis
 
 ## How to Avail this Special Offer? ✅
 
-1. Click the "<a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">Claim Special Discount</a>" button
+1. Click the "<a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">Claim Special Offer</a>" button
 2. You will be redirected to the Hostinger website
 3. Choose any hosting plan
 4. The 20% discount will be automatically applied in the cart
@@ -38,7 +38,7 @@ Here are some key reasons:
 
 <p align="center"><a href="https://hostchoice.in/visit/hostinger-special/" target="_blank" rel="noopener noreferrer">
   <img src="https://www.hostchoice.in/images/special/discount-button.png" 
-       alt="Special Discount Button" 
+       alt="Special Offer Button" 
        style="border:none; cursor:pointer;">
 </a>
 </p>
