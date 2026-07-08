@@ -1,4 +1,4 @@
-# Hostinger Coupon Code 2026 July: Get Extra 20% Off
+# Hostinger Coupon Code 2026 July India and Worldwide: Get Extra 20% Off
 
 [![|1900x820](https://www.hostchoice.in/images/special/hostinger-hosting-offers-free.jpg)](https://hostchoice.in/visit/hostinger-special/)
 
